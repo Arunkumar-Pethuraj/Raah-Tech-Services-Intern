@@ -8,4 +8,17 @@ https://github.com/Arunkumar-Pethuraj/Raah-Tech-Servies-Intern/assets/153414462/
 
 <br>
 
+## Task 2 - Blog Website :
+
+![Screenshot (526)](https://github.com/Arunkumar-Pethuraj/Raah-Tech-Services-Intern/assets/153414462/ad3f077e-c227-45cf-9042-14915884be88)
+
+
+https://github.com/Arunkumar-Pethuraj/Raah-Tech-Services-Intern/assets/153414462/f03f3240-9b96-4436-a2cc-dfa53ab203bf
+
+<br>
+
+
+
+
+
 
